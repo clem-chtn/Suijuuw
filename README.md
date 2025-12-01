@@ -1,2 +1,2 @@
 - JUNIOR Software Devlopper
-- Founder Flunaris
+- Founder Maderly
